@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @William7771
-- 👀 I’m interested in data annotation and graphic design
-- 💞️ I’m looking to collaborate on grapgic desgin, data annotation and acadamic writing
+- 👀 I’m interested in data annotation and graphic design and academic writing
+- 💞️ I’m looking to collaborate on graphic desgin, data annotation and acadamic writing
 - 📫 How to reach me; Email:williamgakono@ gmail.com
